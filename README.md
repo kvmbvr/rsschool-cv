@@ -1,1 +1,1 @@
-# rsschool-cv
+https://kvmbvr.github.io/rsschool-cv/cv
